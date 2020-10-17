@@ -1,0 +1,1 @@
+Sooji, yogurt, onions,green chilli,carrots,sambar masala,butter,cheese(optional),white oil,pepper(optional),corriondor leaves,water,salt
